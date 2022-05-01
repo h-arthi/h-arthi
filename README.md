@@ -1,7 +1,7 @@
-![Untitled design (1)](https://user-images.githubusercontent.com/87198435/166133127-c87740ad-5e6f-4f0f-aed1-925b8b4deaa5.png)
+![Untitled design](https://user-images.githubusercontent.com/87198435/166136145-6cd140e2-b758-4415-8d85-e7bcf7461b32.png)
 
 ### Hello There 🪐
-I am Harthi, a Year 1 student currently pursuing a Bachelors Degree in Electrical and Electronic Engineering at the University of Nottingham Malaysia. My passion lies in using the advancements of science and technology to help build a greener future and is what drives me to continue to expand my skills and knowledge. I enjoy taking on projects that challenge me and pushes me out of my comfort zone, and I would like to be part of project liek this in the future. 
+I am Harthi, a Year 1 student currently pursuing a Bachelors Degree in Electrical and Electronic Engineering at the University of Nottingham Malaysia. My passion lies in using the advancements of science and technology to help build a greener future and is what drives me to continue to expand my skills and knowledge. I enjoy taking on projects that challenge me and pushes me out of my comfort zone, and I would like to be part of projects like this in the future. 
 
 Please do feel free to drop me a message on Linkedin or an email if you would like to know me better⚡
 
