@@ -5,9 +5,14 @@ I am Harthi, a Year 1 student currently pursuing a Bachelors Degree in Electrica
 
 Please do feel free to drop me a message on Linkedin or an email if you would like to know me better⚡
 
-***Connect With Me:
+***Connect With Me:***
+
 💬[Linkedin](https://www.linkedin.com/in/harthiganesh/)
-***Check Out My Projects:
+
+***Check Out My Projects:***
+
 💻[Portfolio](https://hgsblogg.wordpress.com/)
-***Drop Me An Email:
+
+***Drop Me An Email:***
+
 📧[harthi.ganesh@live.com](harthi.ganesh@live.com)
