@@ -9,7 +9,7 @@ Please do feel free to drop me a message on Linkedin or an email if you would li
 💬[Linkedin](https://www.linkedin.com/in/harthiganesh/)
 
 ***Check Out My Projects:***
-💻[Portfolio](https://h-arthi.github.io/Portfolio/projects.html)
+💻[Portfolio](https://h-arthi.github.io/projects.html)
 
 ***Drop Me An Email:***
 📧[harthi.ganesh@live.com](harthi.ganesh@live.com)
